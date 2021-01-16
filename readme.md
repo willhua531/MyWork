@@ -1,0 +1,3 @@
+Hi! My name is Will Hua, I have a bachelor's degree in Economics Jilin University and an MBA degree from UIC. I'm currently a controller at a startup. 
+My career goal is to continue my path as an accountant, my currently a controller at a startup, I wish we could succeed and continue my role at the company as a controller or CFO. If not, I would like to join corporate America and become a senoir financial analyst or controller and eventually become a CFO
+I would like to enrich my financial analysis skills.
